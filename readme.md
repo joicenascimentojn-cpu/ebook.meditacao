@@ -24,13 +24,13 @@ capa de ebook sobre meditacao, com uma mulher meditando em meio a nuvens azul pa
 
 Conteúdo gerado via ChatGPT
 Imagens geradas via BING
+
 📚 Materiais
 
 [CAPA GERADA PELO BING](/assets/CAPA2.jpeg)
+
 [EBOOK COMPLETO](/assets/Ebook%20A%20leveza%20do%20presente.pdf)
+
 ebook gerado durante as aulas em output 
 
-Joice Nascimento [Instagram](https://www.instagram.com/joiinascimento/)
-
-Joice Nascimento [Instagram](https://www.instagram.com/joiinascimento/)
 
